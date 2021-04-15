@@ -1,4 +1,4 @@
-Hoxy Foundation, 501(c)(3).
+Hoxy Foundation, 0o765(c)(3).
 
 # About Hoxy Foundation
 
